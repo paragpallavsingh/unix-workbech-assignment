@@ -11,4 +11,4 @@
 
 **Warm Regards,**
 \
-**Parag Pallav Singh*
+**Parag Pallav Singh**
